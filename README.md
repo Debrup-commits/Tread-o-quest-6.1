@@ -7,7 +7,7 @@ This is the first time it was conducted virtually and in-house
 "TEAM MATRIX" emerged as the winner of this competition.
 
 Members of team matrix are:-
-1.Debrup panda (Ld)
+1.Debrup panda (Leader)
 2.Adyasha Jena
 3.Sanjeet Patro
 4.Anisha Mohapatra
